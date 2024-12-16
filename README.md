@@ -1,0 +1,3 @@
+# patternExamplesPHP
+# patternExamplesPHP
+# patternExamplesPHP
